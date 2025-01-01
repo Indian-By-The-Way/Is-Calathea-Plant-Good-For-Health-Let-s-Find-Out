@@ -30,10 +30,15 @@ Adding a Calathea plant to your home or office not only improves air quality but
 Bringing plants into your space can improve your health and mood. The Calathea plant, with its pretty leaves, helps clean the air by removing harmful chemicals. It also adds moisture to the air, making it easier to breathe. Calathea reduces stress, making your environment feel calmer. To care for it, place it in indirect light, water at regular intervals, and keep it in a warm spot with good drainage.
 ## FAQs
 **Question**. Is Calathea safe for pets?
+
 **Answer**. Yes, Calathea is safe for both cats and dogs. It’s non-toxic, so you don’t have to worry about your pets nibbling on it.
- 
+
+
 **Question**. How often should I fertilize my Calathea plant?
+
 **Answer**. Fertilize your Calathea once a month during spring and summer. Use a balanced liquid fertilizer, but don’t fertilize in winter when the plant is resting.
+
  
 **Question**. Why are my Calathea leaves curling or turning yellow?
+
 **Answer**. Yellowing or curling leaves may be due to too much or too little water, or sudden temperature changes. Check your watering routine and avoid drafts or extreme heat.
