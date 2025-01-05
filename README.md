@@ -52,3 +52,7 @@ Bringing plants into your space can improve your health and mood. The Calathea p
 **Question**. Why are my Calathea leaves curling or turning yellow?
 
 **Answer**. Yellowing or curling leaves may be due to too much or too little water, or sudden temperature changes. Check your watering routine and avoid drafts or extreme heat.
+
+For More Information, Contact Us By Mailing At
+
+[sauravsharmapro@gmail.com](mailto:sauravsharmapro@gmail.com)
