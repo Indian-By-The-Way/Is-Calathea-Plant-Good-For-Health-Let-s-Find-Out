@@ -1,5 +1,15 @@
 # Is-Calathea-Plant-Good-For-Health-Let-s-Find-Out
 Bringing plants into your office or home can do wonders for your health and well-being. They help improve air quality, reduce stress, and add a peaceful vibe to any room. One plant that offers these benefits is the Calathea. Known for its beautiful leaves, the Calathea plant is a lovely addition to your space. Moreover, it also creates a healthier environment. In this article, we'll look at the health benefits of having a Calathea. Also, we will go through the best spots to place it in your home or office. Finally, we will learn how to care for it so it stays healthy and vibrant.
+
+## Table Of Content
+1. What Are The Health Benefits Of Planting Calathea At Home And Office?
+2. Best Indoor And Outdoor Locations To Place Calathea Plant
+2.1. Indoor Locations
+2.2. Outdoor Locations
+3. How To Care For Your Calathea Plant?
+4. All Things Considered
+5. FAQs
+
 ## What Are The Health Benefits Of Planting Calathea At Home And Office?
 Calathea plants are not only pretty but also offer health benefits at home or in the office. Here are some core benefits of growing Calathea at your home.
 1.	**Air Purification** — These plants clean the air by removing harmful chemicals like benzene, which are found in items like paints and cleaners. Cleaner air reduces the risk of allergies and makes it easier to breathe.
